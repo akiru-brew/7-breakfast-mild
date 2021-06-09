@@ -55,10 +55,6 @@ I know, not ideal. Rushing a beer is never sensible.
 - Filled 5 bottles from barrel with bottling wand and sediment trap.
 - added 1/2 tbsp caster sugar to each bottle for priming
 - added 7 tbsp caster sugar to barrel
-- pressurised barrel with NO2.
-- Left half the liquid in fermenter for beer experiment
-- Added a handful of chopped coriander and peel of an orange to give a seasonal flavour.
-- Left for a week to see how fermentation continues.
 
 ## Tasting Notes
 
